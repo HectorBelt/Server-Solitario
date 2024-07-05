@@ -27,8 +27,7 @@
 
 
 
-
-# Hola :V
+# callatte pendejo de mrd
 
 
 # No toques nada de aquí para abajo, puedes dañarlo
