@@ -27,7 +27,7 @@
 
 
 
-# callatte pendejo de mrd
+# angel y tortuga son imbecilees
 
 
 # No toques nada de aquí para abajo, puedes dañarlo
