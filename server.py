@@ -20,10 +20,10 @@
 
 
 
-#ola que hace acabo de sufrir con el create .-.
+#acabo de sufrir con el create .-.
 
 #grande angel es god
-
+#angel carry
 # matteneme plox
 #ola
 #malditos negros xdddd
